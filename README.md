@@ -1,1 +1,0 @@
-# technical-assignment-week-8-Rega-Arzula-Akbar
